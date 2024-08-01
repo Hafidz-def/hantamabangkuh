@@ -1,0 +1,2 @@
+# hantamabangkuh
+memoriberkasih
